@@ -2,7 +2,7 @@
 
 **A Foreigner living in Shanghai**
 
-**Want to Share Thoughts, Foods and Sights**
+**Wants to Share Thoughts, Foods and Sights**
 
 **Blog is updated whenever there is something  worth mentioning**
 
