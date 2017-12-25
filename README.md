@@ -1,13 +1,9 @@
-# Welcome to My Blog
+# Welcome to My Blog,Let's See the World
 
-I am a Canadian living in Shanghai.
+**A Foreigner living in Shanghai**
 
-Love to share thoughts, foods and views.
+**Want to Share Thoughts, Foods and Views**
 
-Blog is updated whenever there is something to share.
+**Blog is updated whenever there is something  worth mentioning**
 
-## Contents
-
-**5-minutes Reflection per Day**
-
-### Christmas Day of 2017
+## Christmas Day of 2017
